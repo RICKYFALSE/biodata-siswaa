@@ -6,3 +6,6 @@ Daftar Biodata Siswa Crocodic Academic
 - Angkatan 2021
 - Angkatan 2022
 - Angkatan 2023
+
+*Berikut Ayat Dilarang Pacaran*
+- 17:32
